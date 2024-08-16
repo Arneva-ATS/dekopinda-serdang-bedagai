@@ -1,1 +1,1 @@
-# dekopinda-serdang-bedagai
+# dekopinda-karanganyar
